@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ViktorPetrov0605
+- I'm currently at Uni!!! 4 more years to go !
+- 🌱 I’m currently learning ICT!
